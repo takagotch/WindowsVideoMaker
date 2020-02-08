@@ -1,4 +1,4 @@
-### Windows Movie Maker
+### Windows Movie Maker　/ Photo 
 ---
 https://www.topwin-movie-maker.com/jp/download.html
 
